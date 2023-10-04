@@ -20,10 +20,12 @@ Paths to Help:
 
 # Spread
 
-Would like to spread to school and further to spread awareness. Maybe incorporate people who have had cancer to start it up. 
+Would like to spread to school and maybe further. Maybe incorporate people who have had cancer to start it up. 
 
 # KEY IDEAS
 
 Do not make it convoluted.
 
 Make easy to follow
+
+Hosting could be a problem...
